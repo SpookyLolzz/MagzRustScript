@@ -1,0 +1,2 @@
+# MagzRustScript
+MagzRustScript Cracked
